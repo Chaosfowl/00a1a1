@@ -28,3 +28,7 @@ menu:
 ### 如何联系我
 
 Mastodon `base64– aHR0cHM6Ly9iZ21lLm1lL0BzaGFrZXRhaWw=`
+
+## About Site
+
+本站采用了来自[Mantyke](https://github.com/Mantyke)的[样板间](https://github.com/Mantyke/Hugo-stack-theme-mod)。使用[Vercel](https://vercel.com/)进行部署。
