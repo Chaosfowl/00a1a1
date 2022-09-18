@@ -1,8 +1,8 @@
 baseurl: https://00a1a1.icu/
-languageCode: en-us
+languageCode: zh-cn
 theme: stack
 paginate: 5
-title: Example Site
+title: ✦#00A1A1✦
 
 # Change it to your Disqus shortname before using
 disqusShortname: stack
@@ -39,7 +39,7 @@ params:
 
     sidebar:
         emoji: 🍥
-        subtitle: Lorem ipsum dolor sit amet, consectetur adipiscing elit.
+        subtitle: Apathy's a tragedy, and boredom is a crime.
         avatar:
             enabled: true
             local: true
