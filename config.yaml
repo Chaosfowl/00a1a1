@@ -20,7 +20,7 @@ hasCJKLanguage: true
 
 permalinks:
     post: /:year/:slug/
-    page: /:slug/
+    page: /:month/:day/:filename/
 
 params:
     mainSections:
