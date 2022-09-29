@@ -19,8 +19,8 @@ DefaultContentLanguage: zh-cn
 hasCJKLanguage: true
 
 permalinks:
-    post: /:year/:slug/
-    page: /:month/:day/:filename/
+    post: /:month/:day/:filename/
+    page: /:slug/
 
 params:
     mainSections:
