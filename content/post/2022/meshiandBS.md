@@ -181,7 +181,7 @@ omake
   - 比如温差太大的话吹吹风就会生病需要妹抖照顾
 - 女仆召是大小姐叫自己脱光就会脱到只剩内裤的那种（召召：洗澡的时候不早就看光了吗）还在想难道仪式要涂墨水在身上大小姐一说全部脱光也在边脱边继续想然后就被大小姐按在桌上体液交换了
 - 但也不是不会用各种方面挑逗大小姐就是。。。高攻低防，虽然攻势很猛烈甚至可以说是留一线的脐橙但是黑黑一强硬就因为想老婆开心变弱气了
-![我产品涂鸦1](https://img.bgme.bid/media_attachments/files/109/222/347/103/762/749/original/934a4e5123a18994.png)
+![ ](https://img.bgme.bid/media_attachments/files/109/222/347/103/762/749/original/934a4e5123a18994.png)
 
 #### 杀人的话题
 
@@ -331,10 +331,10 @@ omake
 #### 图片合集
 
 - 我产品if介绍
-![if介绍](https://img.bgme.bid/media_attachments/files/109/223/876/638/639/507/original/5b499827da3cec8c.png)
-![if介绍2](https://img.bgme.bid/media_attachments/files/109/223/794/263/476/461/original/1d5c1c46492cd6b9.png)
+![ ](https://img.bgme.bid/media_attachments/files/109/223/876/638/639/507/original/5b499827da3cec8c.png)
+![ ](https://img.bgme.bid/media_attachments/files/109/223/794/263/476/461/original/1d5c1c46492cd6b9.png)
 - 学pa的百合
-![yuri](https://img.bgme.bid/media_attachments/files/109/229/920/041/527/197/original/32a41ee39cd0cc4f.png)
+![ ](https://img.bgme.bid/media_attachments/files/109/229/920/041/527/197/original/32a41ee39cd0cc4f.png)
 - 然后
 黑黑当晚火速攻读性教育学位结果第二天亲了亲嘴磨了磨奶就结束了问喜欢的谁结果说是黑黑  
 黑黑：……  
@@ -342,7 +342,7 @@ omake
 召召：呵呵我们已经做过了你要负责任←从小说里看来的  
 黑黑：（简直是最糟糕的表白时机了……）
 - 暗堕的魔法少女
-![yamiochi](https://img.bgme.bid/media_attachments/files/109/235/320/101/953/373/original/76085fce30ca726f.png)
+![ ](https://img.bgme.bid/media_attachments/files/109/235/320/101/953/373/original/76085fce30ca726f.png)
 为什么没有画召召因为召召的精神构造基本不会暗堕
 - 感觉暗堕的黑黑妹妹会不分场合地养得累，
 像是直接在魔法少女会议上问那个女人是谁然后一路介绍下去说一堆毒舌的话最后只好让召召用嘴巴堵住毒舌  
@@ -362,4 +362,4 @@ omake
 诗诗：原来是不仲营业啊，我报道里可以这么写吗  
 召召：能不能别写
 - 魔法少女小品
-![mh](https://img.bgme.bid/media_attachments/files/109/241/339/037/311/482/original/c9c0d6b5e389f54e.jpeg)
+![ ](https://img.bgme.bid/media_attachments/files/109/241/339/037/311/482/original/c9c0d6b5e389f54e.jpeg)
